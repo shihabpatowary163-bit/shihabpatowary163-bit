@@ -196,7 +196,7 @@ I'm always interested in learning from experienced professionals, working on pra
 ## 📫 Connect With Me
 
 - **GitHub:** [shihabpatowary163-bit](https://github.com/shihabpatowary163-bit)
-- **LinkedIn:** Coming soon
+- **LinkedIn:** [Shihab Patowary](https://www.linkedin.com/in/shihab-patowary-360230253/)
 - **Location:** Dhaka, Bangladesh
 
 ---
